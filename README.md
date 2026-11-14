@@ -8,7 +8,7 @@ Marjorie Samantha Giron Morales - 1890-22-19957
 
 https://voz-ciudadana-1890-22-19957.onrender.com
 
-(está en Render gratis, la primera vez puede tardar como 1 minuto en abrir)
+(está en Render gratis)
 
 ## Usuario del panel municipal
 
